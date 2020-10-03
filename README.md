@@ -7,8 +7,8 @@ Come meet the teem that makes it happen.
 ## Managers
 
 1. Founder and CEO - GeraldisNice#4269
-2. Co Founder - 
-3. Head of Customer Service -
+2. Co Founder - italo boi#0001
+3. Head of Customer Service - ProGamerNL01#2785
 
 ## Developers
 1. Lead Developer - GeraldisNice#4269
